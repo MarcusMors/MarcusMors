@@ -1,6 +1,6 @@
 ### Hi there, I'm Marcus Mors 👋
 
-## I am a fearless defesor for the little ones and wordless ones.
+## I am a fearless defesor of the little ones and wordless ones.
 
 -   🌱 I’m currently learning everything
 -   👯 I’m looking to collaborate with in social proyects
